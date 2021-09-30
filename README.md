@@ -1,6 +1,6 @@
 # CryptoMantra - Explore the World of Cryptocurrency
 
-![CryptoMantra](https://ibb.co/1zVv6kj)
+![CryptoMantra](https://i.ibb.co/XYB28qM/cryptomantra.jpg)
 
 ## Introduction
 
